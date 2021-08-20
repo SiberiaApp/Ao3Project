@@ -1,2 +1,7 @@
-# Ao3Project
-流浪同人Project
+# 流浪同人Project
+
+如果这个项目帮到了你，请给我们star!
+
+**最新域名：ao3.子曰.tk**
+
+[点我跳转](http://ao3.子曰.tk/ "点我跳转")
